@@ -2,7 +2,7 @@
 
 ## Global Mentoring Ing. Ubaldo Acosta 
 
-##Certificado en curso
+## Certificado en curso
 
 
 
